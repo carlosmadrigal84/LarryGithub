@@ -1,0 +1,7 @@
+- Larry Plotter y el Bucle Filosofal
+- Larry Plotter y la clave secreta del Wifi
+- Larry Plotter y el Prisionero del Firewall
+- Larry Plotter y el Malware de fuego
+- Larry Plotter y la Orden de Uix
+- Larry Plotter y el misterio del Hacker
+- Larry Plotter y los commits de la Muerte
